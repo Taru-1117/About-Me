@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Taru-1117
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning c++
+- 🌱 I’m currently in web designing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mail at tarubansal482@gmail.com
 
