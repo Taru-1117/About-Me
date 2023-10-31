@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Taru-1117
 - 👀 I’m interested in website designing and tickting on amedeus software
-- 🌱 I’m currently in ...
+- 🌱 I’m currently in 4th year of B-tech IT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me mail at tarubansal482@gmail.com
 
